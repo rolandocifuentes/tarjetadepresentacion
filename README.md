@@ -1,1 +1,0 @@
-# Tarjeta de presentación
